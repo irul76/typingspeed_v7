@@ -1,1 +1,0 @@
-# typingspeed_v6
